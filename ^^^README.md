@@ -1,9 +1,5 @@
 # Hello Regular 3-man team
 
-Are you having trouble understanding the code?
+Smart move cloning it all so fast.
 
-If so, you should reach out.
-
-Your boss has my contact details.
-
-Cheers cunts.
+The hard bit isn't this stuff... the hard bit is obtaining the data :)
